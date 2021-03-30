@@ -23,12 +23,14 @@
 2 tablespoons cornstarch
 2 tablespoons water
 ¾ cup peas
+5 cups white rice
 
 
 ## Equipment needed:
 
 Pot
 Stove Top
+Rice cooker
 
 ## Steps for preparation:
 
@@ -38,6 +40,7 @@ Stove Top
 4. Stir in all remaining ingredients except for peas, cornstarch and water. Reduce heat to medium low, cover and simmer 1 hour or until beef is tender (up to 90 minutes).
 5. Mix equal parts cornstarch and water to create a slurry. Slowly add the slurry to the boiling stew to reach desired consistency (you may not need all of the slurry).  
 6. Stir in peas and simmer 5-10 minutes before serving . Season with salt & pepper to taste.
+7. Cook rice
 
 
 ### Notes:
