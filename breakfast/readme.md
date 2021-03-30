@@ -19,6 +19,6 @@
 4b. Crack eggs directly into hot water and cook until eggs are desired consistancy
  
 ### Notes:
-N/A
+Will need some cleaning supplies. This can be messy
 
 ### Codemates 15
