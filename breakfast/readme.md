@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 15 minutes (regular bacon), 25 min (thick bacon)
+## Time to prepare: 20 minutes (regular bacon), 25 min (thick bacon)
 
 ## Ingredients: 8 cage-free eggs, 12 strips of bacon (or 8 pieces of thick bacon), olive oil/butter, salt, pepper
 
