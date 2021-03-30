@@ -4,7 +4,7 @@
 
 ## Time to prepare: 5 mins 
 
-## Ingredients: Bread, Mayo, Lettuce, Tomato, Turkey, Ham, Salt & Pepper
+## Ingredients: Bread, mustard, Lettuce, Tomato, Turkey, Ham, Salt & Pepper
 
 
 ## Equipment needed: Knife
