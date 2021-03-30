@@ -1,16 +1,16 @@
-# Replace with recipe name
+# Cold Cut Sandwiches
 
-## Servings: 
+## Servings: 4
 
-## Time to prepare: 
+## Time to prepare: 5 mins 
 
-## Ingredients:
-
-
-## Equipment needed:
+## Ingredients: Bread, Mayo, Lettuce, Tomato, Turkey, Ham, Salt & Pepper
 
 
-## Steps for preparation:
+## Equipment needed: Knife
+
+
+## Steps for preparation: Take two slices of bread, add mayo, add 3-6 slices of cold-cut of choice, add salt and peper
 
 
 
@@ -18,4 +18,4 @@
 
 
 
-### Codemates #
+### Codemates # 
