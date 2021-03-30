@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Beef Stew
 
 ## Servings: 4
 
