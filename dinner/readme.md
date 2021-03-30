@@ -31,6 +31,7 @@
 Pot
 Stove Top
 Rice cooker
+Measuring Cups
 
 ## Steps for preparation:
 
