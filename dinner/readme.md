@@ -42,6 +42,8 @@ Stove Top
 
 ### Notes:
 
-
+Delicious!
 
 ### Codemates #
+
+@lancebarnardberkeley @ccastilloux
