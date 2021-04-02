@@ -7,7 +7,7 @@
 ## Ingredients: Bread (option: substitute for Sourdough Bread), mustard, Lettuce, Tomato, Turkey, Ham, Salt & Pepper, cheese (optional)
 
 
-## Equipment needed: Knife
+## Equipment needed: Knife, Spoon
 
 
 ## Steps for preparation: 
