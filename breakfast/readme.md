@@ -13,7 +13,8 @@
 ## Steps for preparation:
 1. Turn on stove and oil/butter frying pan
 2. Once pan is hot, put strips of bacon in pan and cook until desired crispyness (8-12 minutes) and take out bacon
-3a. If scrambling eggs, crack all 8 eggs into a mixing bowl and stir eggs vigerously until fully scrambled
+3a. If scrambling eggs, crack all 8 eggs into a mixing bowl and stir eggs vigerously until fully scrambled.
+3b. (Alternative healthier version) Crack 2 eggs into a mixing bowl. Crack the remaining 6 eggs separating the whites. Mix the whites with the 2 eggs previously cracked, and stir vigerously. 
 4a. Pour scrambled eggs into frying pan and continously stir as eggs cook to desired consistancy
 3b. If poached eggs, clear out grease from pan and fill with water
 4b. Crack eggs directly into hot water and cook until eggs are desired consistancy
