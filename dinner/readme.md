@@ -42,6 +42,7 @@ Measuring Cups
 5. Stir in all remaining ingredients except for peas, cornstarch and water. Reduce heat to medium low, cover and simmer 1 hour or until beef is tender (up to 90 minutes).
 6. Mix equal parts cornstarch and water to create a slurry. Slowly add the slurry to the boiling stew to reach desired consistency (you may not need all of the slurry).  
 7. Stir in peas and simmer 5-10 minutes before serving . Season with salt & pepper to taste.
+8. Serve in a plate with rice as a side or serve the stew on top of the rice. 
 
 ### Notes:
 
